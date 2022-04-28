@@ -1,2 +1,2 @@
 # Foreverunited.github.io
-United but not for just today, forever
+I lied, forever is a myth, everything end eventually.
